@@ -1,2 +1,2 @@
 # baitapchuong1ktlt
-chỉ mang tính chất tham khảo xin đừng bán dưới mọi hình thức
+Chỉ mang tính chất tham khảo xin đừng bán dưới mọi hình thức
